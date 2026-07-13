@@ -32,6 +32,10 @@ I enjoy building practical applications, solving real-world problems, and contin
 
 Currently seeking opportunities to grow through software engineering and AI internships.
 
+Fun Fact :
+not a cat fan , yet my favorite animal are tigers 
+
+
 ---
 
 ## Currently Learning
